@@ -13,4 +13,4 @@ Whether we’re providing technical SEO recommendations for our clients’ websi
 
 
 
-[](http://www.ja-publications.agency)
+[](http://www.ja-publications.agency)![seo-potions.png](/uploads/seo-potions.png)
